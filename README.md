@@ -1,4 +1,4 @@
-## Hi there 👋
+## whats up gooners and goonettes
 
 <!--
 **briciololz/briciololz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

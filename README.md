@@ -7,5 +7,6 @@
 
 
 
-[<img src="https://i.postimg.cc/QC3QfmKh/Untitled2163-20260604154548.png" width="150">](https://mjspyt.atabook.org/)
-[<img src="https://i.postimg.cc/Jh34bQmm/Untitled2163-20260604155253.png" width="150">](https://mjspyt.straw.page)
+[<img src="https://i.postimg.cc/6pS3hQDw/Untitled2163-20260604170212.png" width="150">](https://mjspyt.atabook.org/)
+[<img src="https://i.postimg.cc/br8d2F42/Untitled2163-20260604170121.png" width="150">](https://mjspyt.straw.page)
+[<img src="https://i.postimg.cc/J7qz2x9t/Untitled2163-20260604170245.png" width="150">](https://www.instagram.com/curlssformygirlss)

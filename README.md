@@ -4,4 +4,4 @@
 
 
 
-[<img src="https://i.postimg.cc/QC3QfmKh/Untitled2163-20260604154548.png" width="130>](
+[<img src="https://i.postimg.cc/QC3QfmKh/Untitled2163-20260604154548.png" width="150">](https://mjspyt.atabook.org/)

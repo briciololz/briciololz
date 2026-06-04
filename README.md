@@ -5,3 +5,5 @@
 
 
 [<img src="https://i.postimg.cc/QC3QfmKh/Untitled2163-20260604154548.png" width="150">](https://mjspyt.atabook.org/)
+[<img src="https://i.postimg.cc/Jh34bQmm/Untitled2163-20260604155253.png" width="150">]
+(https://mjspyt.straw.page)
